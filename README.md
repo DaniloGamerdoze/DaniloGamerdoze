@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @vsalgado
-- 👀 I’m interested in silvio santos
-- 🌱 I’m currently learning atividade escolar
-- 💞️ I’m looking to collaborate on desmatamento natural
-- 📫 How to reach me ...
+- 👀 I’m interested integralismo
+- 🌱 I’m currently learning geopolitica brasileira
+- 💞️ I’m looking to collaborate on revolucao armada
+- 📫 How to reach me zap
 
 <!---
 DaniloGamerdoze/DaniloGamerdoze is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
